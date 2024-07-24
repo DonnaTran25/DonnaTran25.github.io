@@ -1,1 +1,6 @@
 - [https://medium.com/@DonnaTran25](https://medium.com/@DonnaTran25)
+- [https://www.pinterest.com/DonnaTran75/](https://www.pinterest.com/DonnaTran75/)
+- [https://x.com/SonieTranMai](https://x.com/SonieTranMai)
+- [https://www.youtube.com/channel/UCXmibJamRVtd7bOBGAvDI4Q](https://www.youtube.com/channel/UCXmibJamRVtd7bOBGAvDI4Q)
+- [https://www.quora.com/profile/Jin-Dune](https://www.quora.com/profile/Jin-Dune)
+- [https://www.reddit.com/user/Civil_Variation176/](https://www.reddit.com/user/Civil_Variation176/)
